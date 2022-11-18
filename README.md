@@ -1,1 +1,1 @@
-**Before you get started "READ ME"**
+**Before you do anything kindly "READ ME"**
